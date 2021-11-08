@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CirilBWZ
+- 👀 I’m interested in finsihing my IDPA
+- 🌱 I’m currently learning how to programm for the web
